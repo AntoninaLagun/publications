@@ -1,4 +1,8 @@
-# Publications
+# Antonina Lagun — Publications
+
+![Antonina Lagun](antonina-lagun.jpg)
+
+*Photo © 2026 Antonina Lagun. All rights reserved.*
 
 Research publications by Antonina Lagun.
 
